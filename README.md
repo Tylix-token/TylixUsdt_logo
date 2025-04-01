@@ -1,2 +1,2 @@
-# TylixUsdt Logo 
-TylixUsdt Logo file
+# Tylix Logo 
+Tylix Logo file
